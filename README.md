@@ -34,7 +34,7 @@
 **It's a team that helps people for free!**
 
 
-**This team has a lot of skilled people, who are very skilled in virtual matters👌🏻**
+**This team has skilled people, who are really skilled in virtual matters👌🏻**
 
 
 **This team have many hatters😞, They harass this team Members at facebook without any reason**
